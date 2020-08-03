@@ -1,4 +1,5 @@
 ### Hi there 👋
+```diff
 
 I am Kshitij Gautam, currently working as an Android engineer at Blackcoffer, Dwarka, New Delhi. 
 
@@ -8,3 +9,4 @@ I am Kshitij Gautam, currently working as an Android engineer at Blackcoffer, Dw
 I ♥ COMPUTERS. 
 
 Deus ♱ Vult
+```
