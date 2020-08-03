@@ -6,6 +6,6 @@
 - Contact me at <a href="mailto: kshitijgautam8800@outlook.com"> kshitijgautam8800@outlook.com </a>   
 
 
-###I ♥ COMPUTERS. 
+### I ♥ COMPUTERS. 
 
-###Deus ♱ Vult
+### Deus ♱ Vult
