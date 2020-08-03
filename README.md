@@ -10,4 +10,4 @@ I ♥ COMPUTERS.
 
 Deus ♱ Vult
 
-![](adi-goldstein-EUsVwEOsblE-unsplash.jpg)
+![chip](adi-goldstein-EUsVwEOsblE-unsplash.jpg)
