@@ -9,5 +9,3 @@
 I ♥ COMPUTERS. 
 
 Deus ♱ Vult
-
-![chip](adi-goldstein-EUsVwEOsblE-unsplash.jpg)
