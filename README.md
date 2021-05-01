@@ -6,4 +6,4 @@
 - ✉️ Continue the conversation at <a href="mailto: kshitijgautam8800@outlook.com"> kshitijgautam8800@outlook.com </a>   
 - 💬 Ask me about `Computers && Code on 'roids`
 ### I ♥ COMPUTERS. 
-### \[ lex talionis \]
+### \[ Deus ✝ Vult \]
